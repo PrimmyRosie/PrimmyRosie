@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Prim
+- 👋 Hi, I’m Prim, a Thai animator in SG
 - 👀 I’m interested in After Effects, 2D and 3D animation
 - 🌱 I’m currently studying Animation at LASALLE
 - 💞️ I’m looking to collaborate on something ;/
