@@ -3,3 +3,4 @@
 - 🌱 I’m currently studying Animation at LASALLE
 - 💞️ I’m looking to collaborate on something ;/
 - 📫 Reach me via IG @primmy_rosie
+- 🫠 I'm doing this (and learning code) just for fun
